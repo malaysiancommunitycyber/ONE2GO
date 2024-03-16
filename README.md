@@ -6,3 +6,14 @@ SETUP ?
 GO FIND YOUR SELF
 
 all in one but ONE2GO
+
+# SPECIAL THANKS TO :
+
+* MY SELF 
+* MY CAT 
+* MY JIRAN
+* www.hackersmalaysia.com
+* Helang Merah
+* MCH
+* MDCA
+* ALL SHINOBI 
