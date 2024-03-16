@@ -16,4 +16,11 @@ all in one but ONE2GO
 * Helang Merah
 * MCH
 * MDCA
-* ALL SHINOBI 
+* ALL SHINOBI
+
+  # JOM
+
+  https://t.me/hackersmalaysiacommunity
+  https://t.me/hackersmalaysia
+  https://t.me/HelangMerahGroupHMG
+  
